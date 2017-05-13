@@ -1,1 +1,1 @@
-Moon in Capricorn
+Moon in Capricorn.  Square Venus in Aries.
