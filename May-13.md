@@ -1,1 +1,1 @@
-Moon in Sagittarius
+Moon in Sagittarius.  Conjoined Saturn in Sag.
